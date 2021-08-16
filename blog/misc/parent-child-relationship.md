@@ -67,7 +67,7 @@
 
 
 
-正如罗密欧与茱丽叶中所言："Those violent delight will have violent ends"，这些残暴的欢愉，终将以残暴的结局收场，无论你是矫枉的一方，被矫枉的一方，抑或者是矫枉过正的一方。
+正如《罗密欧与茱丽叶》中所言："Those violent delight will have violent ends"，这些残暴的欢愉，终将以残暴的结局收场，无论你是矫枉的一方，被矫枉的一方，抑或者是矫枉过正的一方。
 
 
 
